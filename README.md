@@ -5,7 +5,7 @@
   * `shantaram3013`: 10
   * `Albatross`: 12
   * `uplime`: 5
-  * `jared`: 1
+  * `xxvennumalleshfan69xx`: 1
 
 ### blackjack and (somewhat gender-inclusive) hookers section
 
