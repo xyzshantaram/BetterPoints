@@ -1,6 +1,6 @@
 # Points
 ### THE BETTER POINTS SYSTEM FU UPLIME
-##### WORTH TWO of every point awarded by bobot AND you can give them freely!
+##### WORTH TWO of every point awarded by bobot (you can't prove they aren't) AND you can give them freely!
 
   * `shantaram3013`: 10
   * `Albatross`: 12
