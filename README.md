@@ -3,7 +3,7 @@
 ##### WORTH TWO of every point awarded by bobot (you can't prove they aren't) AND you can give them freely!
 
   * `shantaram3013`: 10
-  * `Albatross`: 12
+  * `Albatross`: 14
   * `uplime`: 5
   * `xxvennumalleshfan69xx`: 1
 
